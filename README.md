@@ -4,7 +4,7 @@ Di era digital yang serba cepat ini, industri *game* telah bertransformasi dari 
 
 Artikel ini akan mengupas tuntas mengapa dunia *gaming* kini menjadi ladang subur bagi berbagai kesempatan, serta bagaimana Anda bisa mengambil bagian dalam revolusi digital ini.
 
-## 🚀 Evolusi Gaming: Dari Konsol ke Komunitas Global
+## 🚀 Evolusi Gaming: Dari Konsol ke Komunitas Globa
 
 Perjalanan *gaming* telah melalui evolusi yang menakjubkan. Dimulai dari mesin *arcade* sederhana dan konsol rumahan, kini *game* telah merambah ke perangkat *mobile* dan menjadi fenomena sosial yang menghubungkan jutaan orang di seluruh dunia.
 
